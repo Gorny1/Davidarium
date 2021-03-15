@@ -1,2 +1,0 @@
-# Davidarium
-*epic*
